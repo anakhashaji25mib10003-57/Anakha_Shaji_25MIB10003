@@ -29,4 +29,3 @@
 * 💼 LinkedIn: https://www.linkedin.com/in/anakha-shaji-8361b3387?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 
 ✨ I enjoy blending science with technology to discover new possibilities!
-
